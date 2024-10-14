@@ -1,3 +1,3 @@
-# Avaliação Padrçao de Projetos
+# Avaliação Padrão de Projetos
 ## 👨🏼‍💻 Kellyanne Karen da Silva
 
